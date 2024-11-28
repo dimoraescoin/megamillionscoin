@@ -1,1 +1,1 @@
-# megamillionscoin.io
+# megamillionscoin
